@@ -1,9 +1,6 @@
 [![Video](https://img.youtube.com/vi/j59tQzimkKI/0.jpg)](https://www.youtube.com/watch?v=j59tQzimkKI)
 
 
-
-
-
 Marvel Superheroes
 ===================================
 
